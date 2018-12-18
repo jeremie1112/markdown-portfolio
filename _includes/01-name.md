@@ -1,3 +1,0 @@
-#Jeremie Daniel
-##Mohack
-###MLH
